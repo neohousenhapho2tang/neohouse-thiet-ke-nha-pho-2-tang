@@ -99,3 +99,25 @@ Nhà phố 2 tầng có gara là lựa chọn phổ biến cho những gia đìn
 <img src="https://cdn.amebaowndme.com/madrid-prd/madrid-web/images/sites/2078629/03138c44f923651c310f5278db36802a_c4afa0838e4c6006e870efb8bf4904b4.jpg?width=800" class="placeholder placeholder--loaded  " style="">
 
 Mong rằng những mẫu thiết kế trên sẽ giúp bạn có thêm ý tưởng và lựa chọn cho ngôi nhà phố của mình. Hãy cân nhắc các yếu tố như diện tích, phong cách sống và nhu cầu sử dụng để chọn một thiết kế phù hợp nhất.
+
+Thông tin liên hệ:
+
+NEOHOUSE - HCM
+Đ/c: 8B, Bàu Cát 8, P. 11, Q. Tân Bình, TP. Hồ Chí Minh.
+Tel: 0906 100 202.
+NEOHOUSE - ĐÀ NẴNG
+Đ/c: 63 Phan Đăng Lưu, Q. Hải Châu, Tp. Đà Nẵng
+Tel: 0903 544 641.
+Email: tuvanneohouse@gmail.com
+
+- SOCIAL NEOHOUSE
+<a href="https://www.instagram.com/neohousejsc/">https://www.instagram.com/neohousejsc/</a>
+<a href="https://twitter.com/house_neo">https://twitter.com/house_neo</a>
+<a href="https://www.pinterest.com/neohousevn/">https://www.pinterest.com/neohousevn/</a>
+<a href="https://www.linkedin.com/in/neohouse/">https://www.linkedin.com/in/neohouse/</a>
+<a href="https://www.tumblr.com/neohousevn">https://www.tumblr.com/neohousevn</a>
+<a href="https://linkhay.com/u/Neohouse">https://linkhay.com/u/Neohouse</a>
+<a href="https://www.folkd.com/user/Neohouse">https://www.folkd.com/user/Neohouse</a>
+<a href="https://ok.ru/thiet.ke.kien.truc.neohoues">https://ok.ru/thiet.ke.kien.truc.neohoues</a>
+<a href="https://www.reddit.com/user/congtyneohouse">https://www.reddit.com/user/congtyneohouse</a>
+<a href="https://www.facebook.com/neohouse.vn/">https://www.facebook.com/neohouse.vn/</a>
